@@ -1,1 +1,1 @@
-# WhitePanda
+# White
